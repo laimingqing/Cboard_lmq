@@ -1,2 +1,2 @@
 # Cboard_lmq
-study
+good good study,day day up!!
